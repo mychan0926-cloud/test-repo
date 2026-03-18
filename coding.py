@@ -1,0 +1,3 @@
+JungMyeongChan
+202302150
+컴퓨터공학과
